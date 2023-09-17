@@ -1,1 +1,1 @@
-# [musaCv](https://users.metropolia.fi/~onnif/BANDIT/ ":smiling_imp: ")
+# [musaCv :smiling_imp: ](https://users.metropolia.fi/~onnif/BANDIT/)
